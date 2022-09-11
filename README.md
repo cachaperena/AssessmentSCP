@@ -1,1 +1,1 @@
-# AssessmentSCP
+# MyBrand
